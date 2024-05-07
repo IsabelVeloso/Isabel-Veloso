@@ -4,6 +4,7 @@
 
 Meu nome e Isabel De Lima Veloso : ☀️
 Estou estudando na Alura.
+> escrito por (https://cursos.alura.com.br)
 Estou me desenvolvendo na linguagem Javascript.
 Utilizo esse espaço para minha organização e compartilho dos meus projetos desenvolvidos : 📲
 
