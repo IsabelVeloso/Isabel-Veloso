@@ -1,6 +1,6 @@
 # Isabel-Veloso
 
-** Bem vindo ao meu perfil **: 💕
+**Bem** vindo ao meu perfil : 💕
 
 meu nome e Isabel De Lima Veloso : ☀️
 estou estudando na Alura.
