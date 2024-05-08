@@ -11,4 +11,5 @@ Utilizo esse espaço para minha organização e compartilho dos meus projetos de
 
 Você pode entrar em **contato comigo** em meu email, irei responder lor lá 👍🏾
 
-![Gif Hd](https://tenor.com/b1uT6.gif)
+![Gif Hd](![image](https://github.com/IsabelVeloso/Isabel-Veloso/assets/169209696/ab46093f-dcf6-4f66-b6ed-e9ec282f5975)
+
